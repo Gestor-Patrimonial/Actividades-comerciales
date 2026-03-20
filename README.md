@@ -1,1 +1,2 @@
 # Actividades-comerciales
+Las actividades comerciales obedecen a idénticas líneas normativas con la excepción que, a partir de 1925, ellas alcanzan cifras decididamente elevadas. Contrariamente a esto último, pero en forma análoga a lo que ocurrió con la agricultura, los préstamos a la industria, que habían comenzado a crecer discretamente hacia 1910, se redujeron de manera acentuada durante la guerra, no obstante que era entonces cuando la acción del Estado, efectuada a través de su banco, puede ejercer efectos duraderos. 
